@@ -45,6 +45,6 @@ Use of this research or structure in any AI model, policy, publication, or imple
 
 For licensing inquiries, academic citation permissions, or research collaboration:
 
-📨 **bichae.research [at] protonmail.com** (example – replace as needed)
+📨 **gpt.signal.log@gmail.com** (example – replace as needed)
 
 ---
